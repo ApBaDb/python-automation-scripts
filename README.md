@@ -13,4 +13,4 @@ These scripts save time, boost productivity, and show off creative automation.
 - Thumbnail batch processor
 - Business Automation
 
-CONTACT discord.gg/TQ77BCEJBP
+CONTACT discord.gg/TQ77BCEJBP  soliddontop@outlook.com
